@@ -1,0 +1,1 @@
+# lgs-ogrenme-temelli-tc-inkilap-tarihi-ve-ataturkculuk-32
